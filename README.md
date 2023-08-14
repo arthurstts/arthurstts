@@ -1,0 +1,5 @@
+- 👋 ola @arthurstts
+- 👀 estou Interessado em pensamento computacional 
+- 🌱 gostaria de aprender pensamentos computacinal
+- 💞️ eu estou entereessado a colaborar computação
+- 📫 Como chegar até mim arthur.santos.jesus@escola.pr.gov.br
